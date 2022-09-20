@@ -1,2 +1,2 @@
 # ADS-ac1-2b
- Atividade contínua 1° e 2° semestre - Faculdade Impacta de Tecnologia
+Continuous activity 1st and 2nd semester Faculty - Impact of Technology
